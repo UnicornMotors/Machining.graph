@@ -4,3 +4,4 @@
 - [Import Lathe Buying Guide](https://youtu.be/znZgT3Zmf5Y)
 - [CHEAP $260 MINI LATHE - HOW BAD CAN IT BE?](https://youtu.be/y_pNemNcdhk)
 - [I Finally Bought A New Lathe - Hafco Al 250G](https://youtu.be/euxa3Iqq4OA)
+- [Mini Lathe "The First Tool" Unboxing and Review](https://youtu.be/v3K4XQFU-Ck)
