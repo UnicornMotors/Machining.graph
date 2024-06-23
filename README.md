@@ -9,7 +9,12 @@ index:
 - [Making a Surface Gauge (Part 2) || INHERITANCE MACHINING](https://youtu.be/53q6kVX9gjM)
 - [These Will Save My Parts](https://youtu.be/r34WUDab244)
 - [Making a dovetail box... like a machinist!](https://youtu.be/uQQH8XzlgVU)
-- 
+
+## channel: [Clickspring](https://www.youtube.com/@Clickspring)
+- [Tools, Glorious Tools! #10 (Part 3) - Shop Made Gear Cutters - Making "Involute" Gear Cutters](https://youtu.be/1sBU7GZNEJQ)
 
 ## channel: [Elimold](https://www.youtube.com/@ElimoldCompany)
 - [A close look at the process of CNC machining of Elimold company](https://youtu.be/fuA2zNPlP4k)
+
+## channel: [Artisan Makes](https://www.youtube.com/@artisanmakes)
+- [Making A Set Of V Blocks](https://youtu.be/YCrLrB3Q3JE)
