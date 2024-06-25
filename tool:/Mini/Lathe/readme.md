@@ -1,6 +1,5 @@
 - [Fixing Everything Wrong With My Mini Lathe](https://youtu.be/V3mu9NLjkR4)
 - [10 Years of Mini Lathe Ownership: Pros, Cons, Modifications and Improvements](https://youtu.be/GfJSxWOEP44)
-- [Is A $600 Mini Lathe Worth It - 2 Year Review](https://youtu.be/rHajnIraFQM)
 - [Testing A Cheap Chinese Mini Metal Lathe: Is It Worth It?!](https://youtu.be/EXW4qQmcaa4)
 - [Import Lathe Buying Guide](https://youtu.be/znZgT3Zmf5Y)
 - [CHEAP $260 MINI LATHE - HOW BAD CAN IT BE?](https://youtu.be/y_pNemNcdhk)
@@ -9,3 +8,8 @@
 - [Top 4 Best Mini Metal Lathe Machines](https://youtu.be/h7_bqeCd5hU)
 - [The Infamous Mini Lathe!](https://youtu.be/05vUCdzhoe4)
 - [Better LATHE Than Never!](https://youtu.be/HYOgmhpBUJs)
+
+# by: Artisan Makes
+- [Is A $600 Mini Lathe Worth It - 2 Year Review](https://youtu.be/rHajnIraFQM)
+- [Top Tips For Chinese Mini Lathes](https://youtu.be/a6SrWRmGHak)
+- [20 Best Mini Lathe Upgrades And Improvements](https://youtu.be/YVkWQLbPo60)
